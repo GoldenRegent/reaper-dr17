@@ -1,4 +1,4 @@
-# 
+# Premium DaVinci Resolve para PC ferramentas é o melhor DaVinci Resolve para PC ferramentas com gravação e gravação de áudio. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
